@@ -1,0 +1,4 @@
+Coloca las dos tazas de agua y el palito (rama) de canela en una cacerola mediana y prende el fuego a alto.
+Luego de que el agua comienza a hervir, agregas la avena y reduce el fuego a medio. Cocina durante cinco minutos.
+Después de los cinco minutos, vierte la leche y revuelve bien. Continúa cocinando por cinco minutos más, revolviendo de vez en cuando para evitar que la avena se adhiera a la cacerola.
+Eventualmente, la avena se volverá espesa y cremosa, luego retírala del fuego. Sirva en tazones, espolvorea con un poco de canela molida y endulza con el endulzante de tu elección (recomiendo azúcar moscabado oscura).
